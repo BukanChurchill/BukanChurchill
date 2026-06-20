@@ -1,1 +1,1 @@
-Aliv
+Alive
